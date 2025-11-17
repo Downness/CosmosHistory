@@ -1,2 +1,2 @@
-# CosmosHistory
-Cosmos History EBook (unfinished)
+# Cosmos History EBook (unfinished)
+# Everything about cosmos constellations, beings, and cosmos history as it was...
