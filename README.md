@@ -1,2 +1,2 @@
-# Cosmos History EBook (unfinished)
+# Cosmos Traveler Notes eBook (unfinished)
 # Everything about cosmos history, constellations, aliens and science...
